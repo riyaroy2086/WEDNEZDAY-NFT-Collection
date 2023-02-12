@@ -10,9 +10,6 @@
 ##### I tried😅 to fanart some of my favourite characters from the famous #netflixseries "WEDNESDAY"☂️
 ## 🟣 *****About the project:*****
 
-![MintMintedGIF](https://user-images.githubusercontent.com/89868832/212140078-5683a5b5-b628-41a3-8f07-b3f628692229.gif)
-
-
 ##### Currently listed on OpenSea : https://opensea.io/collection/new-year-collection-2023
 # MINT NOW !!!
 ##### Website : https://wednezday-nfts.netlify.app
